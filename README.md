@@ -6,6 +6,7 @@ Guys I love Alucard ![IMG-6205](https://github.com/user-attachments/assets/3d551
 ![4d295c640582ebec75818811d4450b77](https://github.com/user-attachments/assets/e2bdc789-e835-4e67-96cf-3b57adf79d80)
 
 <img width="99" height="56" alt="IMG-6518" src="https://github.com/user-attachments/assets/ac401da7-d8d6-432d-a65e-24d83eab974b" />
+
 HII!! I'm Valentina ^u^, Check out my strawpages/patreon for some information about me!!
 
 ![Tumblr-l-344304873254078](https://github.com/user-attachments/assets/d57c174c-89cb-49ad-9519-3610bd9abf79)
